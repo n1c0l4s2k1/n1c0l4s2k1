@@ -1,3 +1,3 @@
-## Hi I'm Brayan 👋
+## Hi, I'm Brayan 👋
 
 
